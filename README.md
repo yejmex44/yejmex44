@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @yejmex44
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning crytocurrency
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on this website
 - 📫 How to reach me by this email coffemate470@gmail.com
 - 😄 Pronouns: he/his
 - ⚡ Fun fact: most of the time im staying at home
